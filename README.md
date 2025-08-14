@@ -14,7 +14,6 @@ ID card formation was initiated for multiple branches, including CE-B.
 
 
 
----
 
 # Day 2 – Tuesday, (05-08-2025)
 
